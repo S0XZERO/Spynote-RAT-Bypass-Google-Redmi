@@ -15,11 +15,11 @@ https://github.com/S0XZERO/Spynote-RAT-Bypass-Google-Redmi/assets/133046209/5d32
 
 ✅Bypass Redmi Avast Security
 
-Direct Buy shop : https://0xzero.sellix.io/product/641ef134cd6d6
+Direct Buy shop : https://ZeroShoping.sellix.io/product/64948632544e9
 
 Join Group : https://t.me/joinchat/rr9i5chOVIw3YTM0
 
-My Shop : https://0xzero.mysellix.io
+My Shop : https://zeroshoping.mysellix.io
 
 Contact Detalis:
 
